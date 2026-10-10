@@ -56,7 +56,7 @@ Chiunque si esalta sarà umiliato, e chiunque si umilia sarà esaltato.
 
 ## Matteo 23:14
 
-[14]
+[Guai a voi, scribi e farisei ipocriti, perché divorate le case delle vedove e intanto fate lunghe preghiere per farvi vedere; per questo riceverete una condanna più severa.]
 
 ## Matteo 23:15
 

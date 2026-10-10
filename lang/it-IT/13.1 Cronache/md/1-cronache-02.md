@@ -3,14 +3,11 @@
 ## 1 Cronache 2:1
 
 Questi erano i figli di Israele:
-
 > Ruben, Simeone, Levi, Giuda, Issacar, Zabulon,
-
-> Dan, Giuseppe, Beniamino, Neftali, Gad e Aser
 
 ## 1 Cronache 2:2
 
-.
+Dan, Giuseppe, Beniamino, Neftali, Gad e Aser.
 
 ## 1 Cronache 2:3
 

@@ -94,10 +94,6 @@
 > Fece sgorgare ruscelli dalla roccia  
 > E fece scorrere le acque come fiumi.
 
----
-
-[Il Salmo 78 continua fino al versetto 72; a causa della sua lunghezza, vuoi che continui con **i versetti 17–72** ora in Markdown, o mi fermo qui e riprendo dal versetto 17 nel prossimo messaggio?]
-
 ## Salmo 78:17
 
 > Tuttavia continuarono a peccare contro di Lui,  

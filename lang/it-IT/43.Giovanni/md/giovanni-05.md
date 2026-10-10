@@ -14,7 +14,7 @@ In questi portici giaceva una moltitudine di malati, ciechi, zoppi o paralizzati
 
 ## Giovanni 5:4
 
-[4]
+[Infatti un angelo, in certi momenti, scendeva nella vasca e agitava l'acqua; il primo che vi scendeva dopo che l'acqua era stata agitata guariva da qualunque malattia fosse afflitto.]
 
 ## Giovanni 5:5
 
